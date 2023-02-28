@@ -33,3 +33,8 @@ https://www.youtube.com/watch?v=a0kpnz7y6TA
 
 10.hawthorn juice 山楂汁
 
+
+## DAY IN LIFE AT SHOPEE?! | ShopeeTV
+
+https://www.youtube.com/watch?v=DHge9qKDFGU
+
