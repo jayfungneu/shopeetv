@@ -69,3 +69,10 @@ https://www.youtube.com/watch?v=ehoyNe5BEFY
 
 5.at the end of the day 在一天的末了
 
+## Day In The Life Of A Shopee Intern | ShopeeTV
+
+https://www.youtube.com/watch?v=o-lfj5U5ta8&t=1s
+
+1.mosque 清真寺
+
+2.we have snacks in the pantry 我们在储藏室里有零食
