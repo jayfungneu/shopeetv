@@ -64,3 +64,5 @@ https://www.youtube.com/watch?v=ehoyNe5BEFY
 2.as a protocol  作为协议
 
 3.shoe rack 鞋架
+
+4.you have to stop for a while,while the rains go off 你需要等雨停
