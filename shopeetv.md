@@ -43,3 +43,7 @@ https://www.youtube.com/watch?v=DHge9qKDFGU
 2.we have our microphone to capture sound 我们有麦克风来捕捉声音
 
 3.teleprompter 提词器
+
+
+## We Review Shopee's Office Snacks Across The World! | ShopeeTV
+https://www.youtube.com/watch?v=ZbAeh5YdKjE
