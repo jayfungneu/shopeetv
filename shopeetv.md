@@ -14,3 +14,5 @@ https://www.youtube.com/watch?v=M3zzIHeFsBA
 https://www.youtube.com/watch?v=a0kpnz7y6TA
 
 flagship store 旗舰店
+fill up whole basket 装满整个篮子
+the snacks here are all exclusive China snacks 这里的小吃都是中国特色小吃
