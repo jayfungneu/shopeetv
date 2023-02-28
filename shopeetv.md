@@ -66,3 +66,6 @@ https://www.youtube.com/watch?v=ehoyNe5BEFY
 3.shoe rack 鞋架
 
 4.you have to stop for a while,while the rains go off 你需要等雨停
+
+5.at the end of the day 在一天的末了
+
