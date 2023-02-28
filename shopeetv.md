@@ -18,3 +18,5 @@ https://www.youtube.com/watch?v=a0kpnz7y6TA
 2.fill up whole basket 装满整个篮子
 
 3.the snacks here are all exclusive China snacks 这里的小吃都是中国特色小吃
+
+4.it is like 20 packs for $5 only 只要5美元就可以买到20包
