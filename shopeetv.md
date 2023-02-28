@@ -51,3 +51,10 @@ https://www.youtube.com/watch?v=ZbAeh5YdKjE
 1.pantry 食物储藏室
 
 2.I am full of energy to kickstart the day 我充满了精力来开始新的一天
+
+
+
+
+## Day in the Life of A Shopee Express Deliveryman | ShopeeTV
+
+https://www.youtube.com/watch?v=ehoyNe5BEFY
