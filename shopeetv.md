@@ -58,3 +58,9 @@ https://www.youtube.com/watch?v=ZbAeh5YdKjE
 ## Day in the Life of A Shopee Express Deliveryman | ShopeeTV
 
 https://www.youtube.com/watch?v=ehoyNe5BEFY
+
+1.we have some parcels to be delivered 我们有一些包裹要寄
+
+2.as a protocol  作为协议
+
+
