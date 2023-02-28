@@ -39,3 +39,7 @@ https://www.youtube.com/watch?v=a0kpnz7y6TA
 https://www.youtube.com/watch?v=DHge9qKDFGU
 
 1.I am hosting a live stream 我正在主持直播
+
+2.we have our microphone to capture sound 我们有麦克风来捕捉声音
+
+3.teleprompter 提词器
