@@ -76,3 +76,16 @@ https://www.youtube.com/watch?v=o-lfj5U5ta8&t=1s
 1.mosque 清真寺
 
 2.we have snacks in the pantry 我们在储藏室里有零食
+
+
+## Shopee Face Off S2E7: We Eat Frozen Food for 24 Hours | ShopeeTV
+
+https://www.youtube.com/watch?v=R2Plil-nscc
+
+1.three pieces of nuggets 三块鸡块
+
+2.crispy 酥脆的
+
+3.mayo 蛋黄酱
+
+4.take one out from the packaging 从包装里面取出一块
